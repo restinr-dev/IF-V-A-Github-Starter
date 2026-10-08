@@ -1,4 +1,4 @@
-Nama :Zaky Ahmad N
-Kelas:IF 5 A
-Nim  :10224017
-saya seorang musisi
+Nama : Resti Nuraeni
+Kelas:IF-VA
+Nim  :10224168
+
